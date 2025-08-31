@@ -38,10 +38,12 @@ Atuei como voluntário no setor de **administração e divulgação**, com desta
 
 ## 📈 Impacto
 
-A participação no evento **Expotec 2025** foi uma oportunidade valiosa para divulgar o projeto, fortalecer sua imagem institucional e atrair novos apoiadores e colaboradores.
+Participação no evento **Expotec 2025** foi uma oportunidade valiosa para divulgar o projeto, fortalecer sua imagem institucional e atrair novos apoiadores e colaboradores.
+Voluntário Treanee 2024. 2025
+
 
 ---
 
 ## 📬 Contato
 
-Caso queira saber mais ou colaborar com o projeto, entre em contato pelo Instagram do projeto ou comigo diretamente aqui no GitHub.
+E-Mail? Diogo.silva.rego@academico.ufpb.br
